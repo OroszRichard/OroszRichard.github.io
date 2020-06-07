@@ -1,0 +1,2 @@
+# OroszRichard.github.io
+Pénzügyi
